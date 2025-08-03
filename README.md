@@ -1,1 +1,0 @@
-# QTCO-Workplace-Individual-project
